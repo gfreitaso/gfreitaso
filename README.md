@@ -9,7 +9,7 @@
 
 - 👯 I’m looking to collaborate on **data analysis projects**
 
-- 💬 Ask me about **Technology, Data Analysis, Projects, graphics, machine learning**
+- 💬 Ask me about **Technology, Data Analysis, Projects, Graphics, Machine learning, Data Wrangling**
 
 - 📫 How to reach me **bielfreitas28@gmail.com**
 
