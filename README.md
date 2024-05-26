@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **bielfreitas28@gmail.com**
 
-- 📄 Know about my experiences [www.linkedin.com/in/freitasgabriel7](www.linkedin.com/in/freitasgabriel7)
+- 📄 Know about my experiences (https://www.linkedin.com/in/gfreitaso/)]
 
 - ⚡ Fun fact **athlete, football player, gym addict**
 
